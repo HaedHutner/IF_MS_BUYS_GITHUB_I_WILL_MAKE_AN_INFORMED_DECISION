@@ -6,7 +6,7 @@ for years, and I see no reason not to continue supporting them.
 
 # Being a responsible consumer
 
-Use that thing between the 2 lumps on the sides of your head used for audio reception.
+Use that thing between the 2 lumps on the sides of your head responsible for audio reception.
 
 # How to help
 
